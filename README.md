@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ferdirizaldi
 - 👀 I’m interested in many things
-- 🌱 I’m currently learning my meaning of life
+- 🌱 I’m currently learning anything
 - 💞️ I’m looking to collaborate on ...
 - 📫 reach me from email or anything
 
